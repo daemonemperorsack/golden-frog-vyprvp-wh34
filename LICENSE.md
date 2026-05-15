@@ -1,4 +1,4 @@
-
+Enhance your StrongVPN experience with automatic StrongVPN Connector | ad-blocker + port-forwarding, the #1 connector. Includes ad-blocker and port-forwarding for a safer and more
 
 
 
